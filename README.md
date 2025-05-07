@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computers, gaming, hearing music, and flamingos. 
 - 🌱 I’m currently learning JavaScript/Any Programming
 - 💞️ I’m looking to collaborate on myself 
-- 📫 How to reach me on discord (rosa_134) 
+- 📫 How to reach me on nothing (not ready to talk with peeps) 
 - 😄 Pronouns: She/her/hers "I want respect"
 - ⚡ Fun fact: I have ADHD so be patient with me, loves the color blue, and draws. 
 
